@@ -1,5 +1,5 @@
-Eu sou Emerson 
+zzzzzzzzzzqEu sou Emerson 
 Tenho 16 Anos
 moro em SP
 amo musicas
-![](https://tenor.com/7cLK.gif)
+![](https://media1.tenor.com/m/2mfG8pdR5UgAAAAC/dog-laughing-funny-dog.gif)
