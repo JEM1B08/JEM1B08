@@ -1,4 +1,4 @@
-zzzzzzzzzzqEu sou Emerson 
+Eu sou Emerson 
 Tenho 16 Anos
 moro em SP
 amo musicas
